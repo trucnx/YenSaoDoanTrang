@@ -11,7 +11,7 @@ Tăng cường chức năng gan, thận
 .. image:: /img/yen52.jpg
 
 Hỗ trợ hoạt động của Hệ tiêu hóa
---------
+---------
 
 Bên cạnh đó, ``tổ yến`` có thể làm tăng cảm giác ngon miệng, tăng cường khả năng của hệ tiêu hóa, hệ thống miễn dịch. Tổ yến cũng giúp duy trì sức khỏe chung, cải thiện chất lượng của lá lách. 
 
