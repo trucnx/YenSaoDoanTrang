@@ -23,7 +23,7 @@ Giữ cho tinh thần luôn minh mẫn
 Đối với những người thường xuyên ``làm việc trí óc``, ``tổ yến`` cũng giúp giữ cho tinh thần luôn minh mẫn, giảm stress nhờ có chứa nhiều nguyên tố đa, vi lượng như Mn, Cu, Zn, Br rất có ích cho quá trình ổn định thần kinh, hỗ trợ sự tập trung và tăng cường trí nhớ.
 Vì vậy, không chỉ có phụ nữ mà cả đàn ông cũng nên dùng tổ yến để có được một ``cơ thể cường tráng``, ``dồi dào sinh lực`` và ``tinh thần minh mẫn``.
 
-.. note:: Liên hệ Ms.Minh - Điện thoại: 0914360695
+.. note:: Liên hệ Ms.Trang - Điện thoại: 0915 538 357 - Ship hàng COD toàn quốc
 .. image:: /img/yen06.jpg
 
 #trích nguồn từ internet

@@ -13,7 +13,7 @@ Bé sơ sinh không nên dùng. Bé dưới 1 tuổi thì nên dùng thử 1 lư
 
 Chú ý ``chọn sản phẩm có uy tín`` để đảm bảo giá trị dinh dưỡng và không có hóa chất bảo quản độc hại cho trẻ.
 
-.. note:: Liên hệ Ms.Minh - Điện thoại: 0914360695
+.. note:: Liên hệ Ms.Trang - Điện thoại: 0915 538 357 - Ship hàng COD toàn quốc
 .. image:: /img/yen06.jpg
 
 #trích nguồn từ internet

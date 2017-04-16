@@ -28,7 +28,7 @@ Bí quyết của họ nằm ở việc tắm dưỡng bằng ``tổ yến`` và
 
 Thời điểm ``ăn tổ yến`` tốt nhất là lúc bụng đói ``vào buổi sáng`` hoặc ``buổi tối`` trước khi đi ngủ để dưỡng chất được hấp thụ tốt nhất.
 
-.. note:: Liên hệ Ms.Minh - Điện thoại: 0914360695
+.. note:: Liên hệ Ms.Trang - Điện thoại: 0915 538 357 - Ship hàng COD toàn quốc
 .. image:: /img/yen06.jpg
 
 #trích nguồn từ internet

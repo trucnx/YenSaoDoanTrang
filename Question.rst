@@ -224,7 +224,7 @@ Thường thời gian hấp cách thủy là 30-45 phút, để nhỏ lửa. Th�
  
 Vì có giá trị cao nên tổ yến thường xuyên bị làm giả với mức độ càng ngày càng tinh vi, để có thể mua được tổ yến chất lượng đảm bảo với giá tốt người tiêu dùng nên chọn mua tổ yến ở những địa chỉ tin cậy.
 
-.. note:: Liên hệ Ms.Minh - Điện thoại: 0914360695
+.. note:: Liên hệ Ms.Trang - Điện thoại: 0915 538 357 - Ship hàng COD toàn quốc
 .. image:: /img/yen06.jpg
 
 #trích nguồn từ internet

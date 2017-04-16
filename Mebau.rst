@@ -30,7 +30,7 @@ Nếu như sử dụng không đúng cách hoặc không đúng liều lượng 
 
 Trước khi ăn nên cần sự ``tư vấn của bác sĩ``, dùng như thế nào cho đúng cách dung lượng để tốt cho mẹ lẫn con.
 
-.. note:: Liên hệ Ms.Minh - Điện thoại: 0914360695
+.. note:: Liên hệ Ms.Trang - Điện thoại: 0915 538 357 - Ship hàng COD toàn quốc
 .. image:: /img/yen06.jpg
 
 #trích nguồn từ internet
