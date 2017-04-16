@@ -22,7 +22,7 @@ Ngoài ra, các kết quả thử nghiệm lâm sàng trong y học hiện đạ
 
 Tất nhiên, ngoài cách sử dụng ``tổ yến``, ``người cao tuổi`` cũng nên áp dụng một số biện pháp phòng ngừa như ``tập thể dục thường xuyên``, không nên uống rượu, bia, không nên hút thuốc lá, … ``gia đình cũng nên gần gũi``, ``động viên``, ``chăm sóc ông bà, bố mẹ`` những lúc ốm đau cũng góp phần đáng kể làm cho người cao tuổi ít bệnh tật và cảm thấy sống vẫn còn có ích.
 
-.. image:: /img/myen01.jpg
+.. image:: /img/dyen01.jpg
 
 .. note:: Liên hệ Ms.Trang - Điện thoại: 0915 538 357 - Ship hàng COD toàn quốc
 .. image:: /img/yen06.jpg
